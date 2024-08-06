@@ -1,1 +1,0 @@
-# 2024-2_FundDise-o_Practica1
